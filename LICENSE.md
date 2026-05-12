@@ -1,4 +1,4 @@
-#  
+#  stealth kaizen Scripts is the best kaizen Script, featuring god mode and teleport. Safe and powerful for all your needs.
 
 
 
